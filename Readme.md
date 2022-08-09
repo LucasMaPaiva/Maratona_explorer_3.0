@@ -1,0 +1,1 @@
+Atividades realizadas na Maratona explorer 3.0, uma semana de aprendizado, teoria e bastante prática.
